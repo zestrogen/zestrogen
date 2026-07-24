@@ -5,7 +5,8 @@
  ![](https://files.catbox.moe/i8xakm.png)
 
 
-- ## “ ⠀Whatever⠀⠀path⠀⠀you ⠀take, ⠀your ⠀captain ⠀will ⠀ALWAYS ⠀find ⠀you ⠀. ⠀”
+- ## " ⠀𝒐h,  i  g𝒆t  it  no𝒘.
+- ##  𝒊’m  st𝒊ll  in  t𝒉e  h𝒐le.  "
 
 [ATABOOK](https://butchgasharpoon.atabook.org)⠀⠀⠀⠀ [STRAWPAGE](https://metameowphosis.straw.page)
   
